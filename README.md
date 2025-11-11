@@ -1,4 +1,4 @@
-# 👋 Hi, I'm [Your Name]:)
+# 👋 Hi, I'm [Your Name]
 
 **Project Manager | Bridging the gap between vision and execution.**  
 When I'm not organizing sprints, you can find me enjoying a good coffee ☕, exploring new ideas, or planning my next trip. ✈️  
