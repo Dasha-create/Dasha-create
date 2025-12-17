@@ -44,4 +44,3 @@ Balance and creativity help me lead teams with purpose and calm focus.
 - [GitHub](https://github.com/username)  
 - [Email](mailto:username@example.com)
 
--------
