@@ -36,7 +36,7 @@ When I'm not organizing sprints, you can find me enjoying a good coffee ☕, exp
 I value clarity, empathy, and structure — both in projects and in life.  
 Balance and creativity help me lead teams with purpose and calm focus.  
 “**Plan smart, stay kind, deliver strong.**”  
-
+------
 ---
 
 ### 📫 Connect
